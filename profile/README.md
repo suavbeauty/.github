@@ -1,6 +1,6 @@
 # Welcome to Suav Beauty 
 
-https://github.com/suavbeauty/.github/assets/72293519/7d29908d-a889-49f5-b27c-7b4834fab6a0
+https://github.com/suavbeauty/.github/assets/72293519/d3ec570d-39ca-4424-a145-157a951ff636
 
 ## About Us
 We are a group of like-minded individuals who are curious and strive for excellence. Learners and doers with the hopes of living authentically, loving unconditionally, and making someone’s life better everyday.
